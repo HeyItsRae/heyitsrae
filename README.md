@@ -1,4 +1,4 @@
-### **Hey** there 👋 **It's Rae** :woman_technologist:
+### **Hey** 👋 **It's Rae** :woman_technologist:
 ##### *Welcome to my profile* 
 
 <!--
