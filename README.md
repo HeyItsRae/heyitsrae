@@ -1,5 +1,5 @@
 ### **Hey** there 👋 **It's Rae** :woman_technologist:
-##### _Welcome to my profile_ 
+##### *Welcome to my profile* 
 
 <!--
 **HeyItsRae/heyitsrae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
