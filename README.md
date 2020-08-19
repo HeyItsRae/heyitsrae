@@ -1,4 +1,4 @@
-### **Hey** 👋 **It's Rae** :woman_technologist: and I'm a Talent Strategist here at GitHub. 
+### **Hey** 👋 **It's Rae** :woman_technologist: and I'm a Talent Strategist at GitHub. 
 
 
 #### :question: *About Me* <br> 
@@ -10,5 +10,5 @@
 1. Can type 150 words per minute :keyboard: and always down for a typing challenge! <br> 
 2. Worked in a Bat Lab. :bat: (*Yes, you read that right.*) 
 
-#### *Connect with me here:* <br> 
+#### *Connect With Me Here:* <br> 
 :computer: [LinkedIn](http://www.linkedin.com/in/rachaelcohen)
