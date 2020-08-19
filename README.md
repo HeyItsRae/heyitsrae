@@ -8,7 +8,7 @@
 
 #### :cool:  *Fun Facts* <br> 
 1. Can type 150 words per minute :keyboard: and always down for a typing challenge! <br> 
-2. During Grad School at Tel Aviv University, I worked in a Bat Lab. :bat: (*Yes, you read that right.*) 
+2. During Grad School at Tel Aviv University, I worked in a Bat Lab. :bat: 
 
 #### *Connect With Me Here:* <br> 
 :computer: [LinkedIn](http://www.linkedin.com/in/rachaelcohen)
