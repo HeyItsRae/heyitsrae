@@ -3,7 +3,7 @@
 
 #### :question: *About Me* <br> 
 - Originally from Upstate NY :snowflake:, now residing in Sunny LA :sunny:	<br> 
-- Have a cat named Chui :heart_eyes_cat: 
+- Have two cats: Chui & Theo :heart_eyes_cat: 
 - Getting married in July 2021 :ring:	 
 
 #### :cool:  *Fun Facts* <br> 
